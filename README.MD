@@ -1,2 +1,0 @@
-# APTA-asset
-history
